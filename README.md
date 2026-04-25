@@ -73,7 +73,7 @@ Just remember to do your homework, pick a reputable broker, and always protect y
 Ready to take the plunge? Take an hour this weekend to research a few regulated copy-trading platforms. Look at a few top traders, see how their charts look, and figure out which one feels right for your financial goals. Happy investing!
 <h2>Related HashTags</h2>
 #ForexAccountManagement #SmartTrading #ForexSolutions #InvestmentManagement #ForexInvesting #FXManagement #ProfessionalTrading #ManagedForexAccounts #WealthGrowth #CurrencyTrading #ForexMarket #PassiveIncome #FinancialSuccess #TradingStrategies #FXTrading
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
